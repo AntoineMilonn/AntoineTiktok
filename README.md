@@ -1,3 +1,5 @@
+tiktok-developers-site-verification=xCL8mffcqVADoyiUDGoKYSQcdUFNHnuP
+
 # AntoineTiktok
 
 # Bienvenue sur ma page GitHub!
