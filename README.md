@@ -1,6 +1,6 @@
 tiktok-developers-site-verification=xCL8mffcqVADoyiUDGoKYSQcdUFNHnuP
 
-# AntoineTiktok[tiktokxCL8mffcqVADoyiUDGoKYSQcdUFNHnuP (1).txt](https://github.com/AntoineMilonn/AntoineTiktok/files/14310264/tiktokxCL8mffcqVADoyiUDGoKYSQcdUFNHnuP.txt)
+# AntoineTiktok[tiktokxCL8mffcqVADoyiUDGoKYSQcdUFNHnuP.txt](https://github.com/AntoineMilonn/AntoineTiktok/files/14310264/tiktokxCL8mffcqVADoyiUDGoKYSQcdUFNHnuP.txt)
 
 
 # Bienvenue sur ma page GitHub!
