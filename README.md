@@ -1,5 +1,5 @@
-[tiktokxCL8mffcqVADoyiUDGoKYSQcdUFNHnuP.txt](https://github.com/AntoineMilonn/AntoineTiktok/files/14310284/tiktokxCL8mffcqVADoyiUDGoKYSQcdUFNHnuP.txt)
-[Uploading tiktokxCL8mffcqVADoyiUDGoKYStiktok-developers-site-verification=xCL8mffcqVADoyiUDGoKYSQcdUFNHnuPQcdUFNHnuP.txt…]()
+tiktok-developers-site-verification=xCL8mffcqVADoyiUDGoKYSQcdUFNHnuP
+[tiktokxCL8mffcqVADoyiUDGoKYSQcdUFNHnuP (2).txt](https://github.com/AntoineMilonn/AntoineTiktok/files/14310289/tiktokxCL8mffcqVADoyiUDGoKYSQcdUFNHnuP.2.txt)
 
 
 # Bienvenue sur ma page GitHub!
